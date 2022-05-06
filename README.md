@@ -87,7 +87,7 @@ The website to prove the knowledge obteined in the Course
 
   </div>
   <hr>
-  <blockquote><i>"Ese comportamiento de pornstar me tiene loco"</i> Pablito</blockquote>
+  <blockquote><i>"Yujuuuu"</i> Pablito</blockquote>
   <details>Quiero probar como funciona</details>
   <hr>
   
